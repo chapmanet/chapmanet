@@ -18,3 +18,5 @@ My name is **Ethan**.
 
 ### Useful Link
 [Click Here](https://westernsprings.school.nz/2025/11/13/social-studies-tikanga-a-iwi-annual-sustainable-christmas-market/)
+
+![China](taiwanflag.png)
